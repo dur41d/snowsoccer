@@ -1,1 +1,1 @@
-# Snow Soccer Website
+# Snow Soccer&trade; Website
